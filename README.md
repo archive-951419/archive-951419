@@ -1,2 +1,2 @@
 現在活動していません。  
-連絡先:beta951419@gmail.com
+連絡先:[beta951419@gmail.com](mailto:beta951419@gmail.com)
